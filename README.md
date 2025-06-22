@@ -8,4 +8,4 @@
 
 ![Image](https://github.com/user-attachments/assets/5bc10a79-f5df-4fd3-9677-11c4b554ae47)
 
-Brandon get bullied for being bald!1!!1!
+Brandon get bullied 4 being bald lolz!1!!1!
